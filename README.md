@@ -45,7 +45,7 @@ Ich kombiniere technische Fähigkeiten mit unternehmerischem Denken, um **skalie
 - **E-Mail:** philipp_repke@gmx.de
 - **Standort:** Leipzig, Deutschland
 
-> Ich bin offen für Junior AI Engineer, Python Developer, Generative AI und Prompt Engineering Positionen ab August 2026.  
+> Beruflich Verfügbar ab August 2026.  
 > Für Anfragen oder Projektideen: **Let's work together!**
 
 ---
